@@ -7,7 +7,7 @@
 
 - 📫 How to reach me **kleslie1982@gmail.com**
 
-- 📄 Know about my experiences [Laboratoria Bootcamp](Laboratoria Bootcamp)
+
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
